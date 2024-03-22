@@ -6,7 +6,16 @@ THROUGH THICK AND THIN!"</p>
 </p>
 <p align="center"> TAKEN ♡ 3.10.24
 <br>
-hyperfixated on drv3 + huge nintendo fan ! 
+HYPERFIXATED ON DRV3 + HUGE NINTENDO FAN ^O^
 <br>
-i love super mario !!! 
+I LOVE SUPER MARIO !!!
 </p>
+<br>
+ &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;OTHER MAIN INTERESTS&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;DNI
+
+ &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; KIRBY, YOUR TURN TO DIE, POKEMON, 
+<br>
+ &nbsp; &nbsp; &nbsp; &nbsp; SPLATOON, NEEDY STREAMER OVERLOAD, 
+<br>
+YUME NIKKI/2KKI, OMORI, UNDERTALE/DELTARUNE
+
