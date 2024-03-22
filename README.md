@@ -10,12 +10,11 @@ HYPERFIXATED ON DRV3 + HUGE NINTENDO FAN ^O^
 <br>
 I LOVE SUPER MARIO !!!
 </p>
-<br>
- &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;OTHER MAIN INTERESTS&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;DNI
+<BR>
+<p align="center">OTHER MAIN INTERESTS</p>
 
- &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; KIRBY, YOUR TURN TO DIE, POKEMON, 
-<br>
- &nbsp; &nbsp; &nbsp; &nbsp; SPLATOON, NEEDY STREAMER OVERLOAD, 
-<br>
-YUME NIKKI/2KKI, OMORI, UNDERTALE/DELTARUNE
+<p align="center">KIRBY, YOUR TURN TO DIE, POKEMON,</p> 
+<p align="center">SPLATOON, NEEDY STREAMER OVERLOAD,</p> 
+<p align="center">YUME NIKKI/2KKI, OMORI, UNDERTALE/DELTARUNE</p>
+
 
