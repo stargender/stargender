@@ -10,10 +10,6 @@ HYPERFIXATED ON DRV3 + HUGE NINTENDO FAN ^O^
 <br>
 I LOVE SUPER MARIO !!!
 </p>
-<BR>
-<p align="center">OTHER MAIN INTERESTS</p>
-<p align="center">KIRBY, YOUR TURN TO DIE, POKEMON,</p> 
-<p align="center">SPLATOON, NEEDY STREAMER OVERLOAD,</p> 
-<p align="center">YUME NIKKI/2KKI, OMORI, UNDERTALE/DELTARUNE</p>
+
 
 
