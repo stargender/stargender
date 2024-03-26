@@ -2,7 +2,7 @@
 <br>
 THROUGH THICK AND THIN!"</p>
 <p align="center">
-  <img src="https://cdn.discordapp.com/attachments/1196304361731661864/1220622602528100362/kangel_yayyy.gif?ex=660f9c62&is=65fd2762&hm=954c133980ad85ad83e9c74200f67663390a7ece9bdc8a558009062e8630955d&" alt="animated" />
+  <img src="https://cdn.discordapp.com/attachments/1196304361731661864/1222289363824807988/kangelyayyy-ezgif.com-crop.gif?ex=6615acad&is=660337ad&hm=8f99ffff44da3b2ac1ca8fd585ebdf7d14529a77408373c5563f40a5e96331cd&" alt="animated" />
 </p>
 <p align="center"> TAKEN ♡ 3.10.24 I LOVE COLA <3
 <br>
