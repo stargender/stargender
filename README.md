@@ -5,7 +5,7 @@
 <br>
 i have clinical depression, adhd, & more i won't disclose ... 
 <br>
-i have identity issues and may associate myself with characters often!
+i have identity issues and may associate myself with some characters often!
 <br>
 however i don't refer to them as me, i am aware of myself as a seperate person
 <br>  
