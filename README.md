@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://cdn.discordapp.com/attachments/1196304361731661864/1222322093086085200/kangelyayyy-ezgif.com-resize.gif?ex=6615cb28&is=66035628&hm=414920d72e93abae673ae24df78420a2be67100fd444f6ec78ab77bdf1dfec5d&" alt="animated" />
+  <img src="https://cdn.discordapp.com/attachments/1196304361731661864/1222322366667821096/kangelyayyy-ezgif.com-resize_1.gif?ex=6615cb69&is=66035669&hm=0308efd0f526b079ae01b286401e67b01d2114982134a01b66a3d4ee26df0097&" alt="animated" />
 </p>
 <p align="center"> TAKEN ♡ LUKA [ 3.10.24  ] 
 <br>
