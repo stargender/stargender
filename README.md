@@ -11,7 +11,7 @@ however i don't refer to them as me, i am aware of myself as a seperate person
 <br>  
 i'm not very social nor talkative, but i still like making friends ^_^ w2i with me anytime !
 <br>
-  + HI NEVADA :P
+  + HI SILVER :P
 </p>
 
 
