@@ -3,7 +3,7 @@
 </p>
 <p align="center"> TAKEN ♡ LUKA [ 3.10.24  ] 
 <br>
-i have clinical depression, adhd, & more i won't disclose ... 
+i have clinical depression, audhd, & more i won't disclose ... 
 <br>
 i have identity issues and may associate myself with some characters often!
 <br>
