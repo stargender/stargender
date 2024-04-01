@@ -3,6 +3,8 @@
 </p>
 <p align="center"> TAKEN ♡ LUKA [ 3.10.24  ] 
 <br>
+I have clinical depression, audhd, & other things that may affect my behavior
+<br>
 i have identity issues and may associate myself with some characters often !
 <br>
 however i don't refer to them as me, i am aware of myself as a separate person
