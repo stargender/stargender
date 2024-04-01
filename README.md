@@ -3,8 +3,6 @@
 </p>
 <p align="center"> TAKEN ♡ LUKA [ 3.10.24  ] 
 <br>
-i have adhd and other stuff i won't disclose that'll affect my behaviors
-<br>
 i have identity issues and may associate myself with some characters often !
 <br>
 however i don't refer to them as me, i am aware of myself as a separate person
