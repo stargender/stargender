@@ -3,13 +3,13 @@
 </p>
 <p align="center"> TAKEN ♡ LUKA [ 3.10.24  ] 
 <br>
-i have clinical depression, audhd, & more i won't disclose ... 
+i have adhd + other stuff i won't disclose that'll affect my behaviors >_>
 <br>
-i have identity issues and may associate myself with some characters often!
+i have identity issues and may associate myself with some characters often !
 <br>
-however i don't refer to them as me, i am aware of myself as a seperate person
+however i don't refer to them as me, i am aware of myself as a separate person
 <br>  
-i'm not very social or talkative, but i still like making friends ^_^ w2i with me anytime !
+i'm not very social nor talkative but i still like making friends ^_^ w2i with me anytime !
 <br>
   + HI NEVADA :P
 </p>
