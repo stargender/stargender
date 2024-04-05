@@ -13,6 +13,9 @@ i'm not very social nor talkative but i still like making friends ^_^ w2i with m
 <br>
   + HI NEVADA :P
 </p>
-
+<br>
+<p align="center">
+<img src=“![](https://github.com/STARGENDER/STARGENDER/assets/116984433/6d06eb5f-7ced-47c3-bde6-2669d86e0183)
+”>
 
 
