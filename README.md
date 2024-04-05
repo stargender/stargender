@@ -13,8 +13,6 @@ i'm not very social nor talkative but i still like making friends ^_^ w2i with m
 <br>
   + HI NEVADA :P
 </p>
-<br>
-<p align="center">
 
 
 
