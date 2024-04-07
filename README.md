@@ -3,6 +3,7 @@
 </p>
 <p align="center"> TAKEN ♡ LUKA [ 3.10.24  ] 
 <br>
+<br> 
 i have clinical depression, adhd, & other things that may affect my behavior
 <br>
 i also have identity issues and may associate myself with some characters often !
@@ -10,6 +11,7 @@ i also have identity issues and may associate myself with some characters often 
 however i don't refer to them as me, i am aware of myself as a separate person
 <br>  
 i'm not very social nor talkative but i still like making friends ^_^ w2i with me anytime !
+<br>
 <br>
   + HI NEVADA :P
 </p>
