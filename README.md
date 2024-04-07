@@ -6,7 +6,7 @@
 <br>
 i have clinical depression, adhd, & other things that may affect my behavior
 <br>
-i also have identity issues and may associate myself with some characters often !
+i also have identity issues and may associate myself with some characters often!
 <br>
 however i don't refer to them as me, i am aware of myself as a separate person
 <br>  
