@@ -10,7 +10,7 @@ i also have identity issues and may associate myself with some characters often 
 <br>
 however i don't refer to them as me, i am aware of myself as a separate person
 <br>  
-i'm not very social nor talkative but i still like making friends ^_^ w2i with me anytime !
+i'm not very social nor talkative but i still like making friends ^_^ w2i with me anytime 
 <br>
   + HI NEVADA :P
 </p>
