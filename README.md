@@ -11,6 +11,8 @@ however i don't refer to them as me, i am aware of myself as a separate person
 <br>  
 i'm not very social nor talkative but i still like making friends ^_^ w2i with me anytime 
 <br>
+(however, keep in mind that i'm pretty bad at keeping up with conversations)
+<br>
   + HI KHLOE :P
 </p>
 <p align="center">
