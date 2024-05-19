@@ -14,5 +14,5 @@ i'm not social nor talkative, so i'm not the best at keeping up with convos nor 
 i don't like to talk about myself much, but be aware that i can be negative if i happen to 
 <br> 
 <br>  
-read the pinned dni & interests sections if you gaf about anything else
+read the pinned dni & interests sections if you care about anything else
 </p>
