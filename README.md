@@ -1,5 +1,8 @@
 <p align="center">
-  <img src="https://files.catbox.moe/8l1mc0.png" alt="animated" />
+𓂋 
+  <br>
+  <br>
+  ꒰ა <img src="https://files.catbox.moe/8l1mc0.png" alt="animated" /> ໒꒱
 </p>
 <p align="center"> i am taken ♡
 <br>
