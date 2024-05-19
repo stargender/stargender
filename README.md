@@ -9,7 +9,7 @@ i have clinical depression, adhd, & other things i won't list that may affect my
 i also have identity issues and may associate myself with some characters often
 <br>
 <br> 
-i'm not social nor am i talkative, so i'm not the best at keeping up with convos nor initiating them
+i'm not social nor am i talkative, i'm not the best at keeping up with convos nor initiating them
 <br>  
 i don't like to talk about myself much, but be aware that i can be negative if i happen to 
 <br> 
