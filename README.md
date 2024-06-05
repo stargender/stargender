@@ -4,7 +4,7 @@
 <p align="center"> i am taken ♡
 <br>
 <br>
-i have clinical depression, adhd, & other things i won't list that may affect my behavior
+i have clinical depression, adhd, bpd, & other things i won't list that may affect my behavior
 <br>
 i also have identity issues and may associate myself with some characters often
 <br>
