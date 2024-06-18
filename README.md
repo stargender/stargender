@@ -1,8 +1,7 @@
 <p align="center">
 <img src="https://files.catbox.moe/8l1mc0.png" alt="animated" />
 </p>
-<p align="center"> i am taken ♡
-<br>
+<p align="center">
 <br>
 i have clinical depression, adhd, bpd, & other things i won't list that may affect my behavior
 <br>
