@@ -1,17 +1,15 @@
 <p align="center">
-<img src="https://files.catbox.moe/8l1mc0.png" alt="animated" />
+<img src="https://files.catbox.moe/fnvdhx.gif" alt="animated" />
 </p>
 <p align="center">
+i love my <b>boyfriend</b> ૮ ∩´ ᵕ `∩ ྀིა 
 <br>
-i have clinical depression, adhd, bpd, & other things i won't list that may affect my behavior
+𓎠𓎠𓎠𓎠𓎠𓎠𓎠𓎠𓎠𓎠
 <br>
-i also have identity issues and may associate myself with some characters often
 <br>
-<br> 
-i'm not social nor am i talkative, so i'm not the best at keeping up with convos nor initiating them
-<br>  
-i don't like to talk about myself much, but be aware that i can be negative if i happen to 
-<br> 
-<br>  
-read the pinned dni & interests sections if you care about anything else
+clinically depressed & paranoid (⁠-_-") interact with caution
+<br>
+i have a hard time being social so i might struggle keeping up with conversations  
+<br>
+i don't care about a lot of things but i still block freely if you make me or someone i know uncomfortable
 </p>
