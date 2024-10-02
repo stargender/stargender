@@ -7,7 +7,7 @@ i love my <b>boyfriend</b> ૮ ∩´ ᵕ `∩ ྀིა
 𓎠𓎠𓎠𓎠𓎠𓎠𓎠𓎠𓎠𓎠
 <br>
 <br>
-clinically depressed & paranoid (⁠-_-") interact with caution
+clinically depressed & paranoid (⁠-_-") interact with caution please
 <br>
 i have a hard time being social so i might struggle keeping up with conversations  
 <br>
