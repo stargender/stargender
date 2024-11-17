@@ -2,8 +2,6 @@
 <img src="https://files.catbox.moe/fnvdhx.gif" alt="animated" />
 </p>
 <p align="center">
-i love my <b>boyfriend</b> ૮ ∩´ ᵕ `∩ ྀིა 
-<br>
 𓎠𓎠𓎠𓎠𓎠𓎠𓎠𓎠𓎠𓎠
 <br>
 <br>
