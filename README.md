@@ -1,13 +1,14 @@
 <p align="center">
-<img src="https://files.catbox.moe/fnvdhx.gif" alt="animated" />
+<img src="https://files.catbox.moe/gohu3i.png" width="300" />
 </p>
 <p align="center">
 𓎠𓎠𓎠𓎠𓎠𓎠𓎠𓎠𓎠𓎠
 <br>
 <br>
-clinically depressed & paranoid (⁠-_-") interact with caution please
+i love nintendo games and some other stuff
 <br>
-i have a hard time being social so i might struggle keeping up with conversations  
+i'm not social so i'll probably struggle with keeping up a conversation 
 <br>
-i don't care about a lot of things but i still block freely if you make me or someone i know uncomfortable
+<br>
+dni under 14 and tcc
 </p>
